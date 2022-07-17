@@ -21,3 +21,6 @@
     
 - **Experiência Profissional**
   - Estagiando na empresa [Global Dot Com - GaussFleet](http://www.globaldotcom.com.br/)
+
+- **Avatar**
+![Avatar fofo](https://64.media.tumblr.com/cdabf675b360ef23b1c3c256cdae724d/f9f54ff2ad833d3c-ff/s250x400/fff8119eab128a64df54f152d144195ed9d8e0f4.png)
